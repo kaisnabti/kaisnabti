@@ -20,4 +20,4 @@ Co-founder and technical lead of **Invictus Business**, an AI automation consult
 
 ## Contact
 
-kais.nabti23@gmail.com · Open to AI engineering, automation and forward-deployed roles across Europe and remote.
+nabtikais070@gmail.com · Open to AI engineering, automation and forward-deployed roles across Europe and remote.
